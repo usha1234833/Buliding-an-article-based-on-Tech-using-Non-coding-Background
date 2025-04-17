@@ -1,1 +1,1 @@
-# Buliding-an-article-based-on-Tech-using-Non-coding-Background
+# Buliding-an-article-based-on-Tech-using-Non-coding-Background[Building a Career in Tech Without a Coding Background.docx](https://github.com/user-attachments/files/19795123/Building.a.Career.in.Tech.Without.a.Coding.Background.docx)
